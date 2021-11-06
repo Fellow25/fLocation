@@ -1,3 +1,5 @@
 # fLocation
 
-👌 Discord: https://discord.gg/VEmVnmZZ
+Fellow | Communauté ✨
+
+https://discord.gg/VEmVnmZZ
